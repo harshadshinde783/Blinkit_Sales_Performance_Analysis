@@ -53,4 +53,4 @@ Blinkit has strong sales growth with increasing premium customers, but delivery 
 
 ---
 
-💡 *Author: Tulsidas Telange* 
+💡 *Author: harshad shinde* 
