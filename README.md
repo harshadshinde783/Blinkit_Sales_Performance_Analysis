@@ -51,6 +51,3 @@
 ## 📌 Conclusion:  
 Blinkit has strong sales growth with increasing premium customers, but delivery efficiency and customer satisfaction require improvement. Pet Care and Household Care categories drive significant sales, while card payments remain the most preferred method.
 
----
-
-💡 *Author: harshad shinde* 
